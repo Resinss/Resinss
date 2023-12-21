@@ -1,2 +1,1 @@
-- 👋 Hi, I’m GAY
-- - 👋 Czesc, jestem gejem.
+
